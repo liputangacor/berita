@@ -1,1 +1,1 @@
-"# berita" 
+"Liputan Berita Gacor" 
